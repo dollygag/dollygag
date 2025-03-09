@@ -1,10 +1,10 @@
- ***Hii, call me strawberry!*** ![image](https://github.com/user-attachments/assets/c96282f7-b69b-4193-a268-b016d537092f)
+ ***Hii, call me dolly!*** ![image](https://github.com/user-attachments/assets/c96282f7-b69b-4193-a268-b016d537092f)
 
 ![image](https://github.com/user-attachments/assets/3f1adf8b-e934-40b3-9b84-b202f6898c1c)
 
-just an adhd loser who loves pink n girly stuff as well as art
+just an adhd loser who loves strawberries as well as art
 
-6teen, aussie, any prns
+7teen, aussie, any prns
 
 *super multifandom*, you will catch me all over the place
 
