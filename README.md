@@ -1,7 +1,7 @@
  **hii, call me dolly!** ![image](https://gifs.crd.co/assets/images/gallery22/ce388e55.gif?v=ef433a6f)
  > mainly a ponytown info page btw!
 
-![image][(https://64.media.tumblr.com/8d0b246d418c84b82e5b8cafc6474527/48a22a95c870eb56-88/s400x600/1cf428aca54923043661d962ffbeb56e2ef26395.gifv](https://64.media.tumblr.com/8d0b246d418c84b82e5b8cafc6474527/48a22a95c870eb56-88/s400x600/1cf428aca54923043661d962ffbeb56e2ef26395.gifv)](https://64.media.tumblr.com/8d0b246d418c84b82e5b8cafc6474527/48a22a95c870eb56-88/s400x600/1cf428aca54923043661d962ffbeb56e2ef26395.gifv)
+![image][(https://64.media.tumblr.com/8d0b246d418c84b82e5b8cafc6474527/48a22a95c870eb56-88/s400x600/1cf428aca54923043661d962ffbeb56e2ef26395.gifv)]
 
 just an adhd multifandom loser who loves strawberries and pink!
 
