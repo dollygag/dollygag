@@ -1,4 +1,4 @@
- **hii, call me dolly!** ![image](https://gifs.crd.co/assets/images/gallery22/ce388e55.gif?v=ef433a6f)
+ **hii, call me dolly!** ![image](https://tomomi.neocities.org/15.gif)
  > mainly a ponytown info page btw!
 
 ![image](https://64.media.tumblr.com/e21541c52c78bf3cf922ad1c6ad5003c/0eb1eedc2f7658ed-4c/s250x400/d2333cac22de20a0fccb838b42abbc99e5c6ae3a.gifv)
