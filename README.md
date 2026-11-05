@@ -5,7 +5,7 @@
 
 just an adhd multifandom loser who loves strawberries and pink!
 
-18, aussie, they/them
+18, aussie, she/they
 
 literally chilling in every fandom area or sitting with friends >_<
 
