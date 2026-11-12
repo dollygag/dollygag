@@ -9,7 +9,7 @@ just an adhd multifandom loser who loves strawberries and pink!
 
 literally chilling in every fandom area or sitting with friends >_<
 
-> c+h and int please!! ![image](https://gifs.crd.co/assets/images/gallery24/f762f2b0.gif?v=ef433a6f)
+> c+h and int please!! ![image](https://64.media.tumblr.com/38dafbc8fa0b77ca40f4b3abac080d2e/543110503f68f349-05/s75x75_c1/9e2325dd89d6385214caf6f6294aed9d40f0281b.gifv)
 
 ![image](https://64.media.tumblr.com/1242b202e3005827694749fa2945a0a1/0c2ec245ca7fd467-8a/s400x600/8cf62b9990d496b413364018e927843fb92890d1.gifv)
 
