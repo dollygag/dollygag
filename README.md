@@ -1,7 +1,7 @@
  **hii, call me dolly!** ![image](https://tomomi.neocities.org/pixeles2/318.gif)
  > mainly a ponytown info page btw!
 
-![image](https://tomomi.neocities.org/divider/div59.png)
+![image](https://64.media.tumblr.com/ea55fd2b4e04b706a6d40f9092fedc77/82cf7f0aca5a56e1-68/s400x600/f384e7d9a40af57db1587dc0f83b1e5349f4c600.gifv)
 
 just an adhd multifandom loser who loves strawberries and pink!
 
