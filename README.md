@@ -7,8 +7,6 @@ just an adhd hyperfemme loser who loves strawberries and pink!
 
 18, aussie, she/they
 
-literally chilling in every fandom area or sitting with friends >_<
-
 main interests: transformers, wonderland.jar, crk, dandys world
 
 > c+h and int please!! ![image](https://64.media.tumblr.com/38dafbc8fa0b77ca40f4b3abac080d2e/543110503f68f349-05/s75x75_c1/9e2325dd89d6385214caf6f6294aed9d40f0281b.gifv)
