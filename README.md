@@ -3,7 +3,7 @@
 
 ![image](https://64.media.tumblr.com/1242b202e3005827694749fa2945a0a1/0c2ec245ca7fd467-8a/s400x600/8cf62b9990d496b413364018e927843fb92890d1.gifv)
 
-just an adhd multifandom loser who loves strawberries and pink!
+just an adhd hyperfemme loser who loves strawberries and pink!
 
 18, aussie, she/they
 
@@ -13,6 +13,6 @@ literally chilling in every fandom area or sitting with friends >_<
 
 ![image](https://64.media.tumblr.com/1242b202e3005827694749fa2945a0a1/0c2ec245ca7fd467-8a/s400x600/8cf62b9990d496b413364018e927843fb92890d1.gifv)
 
-DNI! proshippers, darkshippers, bigots, toxic people, illness fakers, basic dni criteria :P
+𝗱𝗻𝗶! under 13, proshippers, darkshippers, bigots, toxic people, illness fakers, basic dni criteria :P
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=dollygag)
