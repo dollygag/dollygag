@@ -18,5 +18,3 @@ main interests: transformers, wonderland.jar, crk, dandys world
 𝗯𝘆𝗶! i'm rlly shy around strangers so it might be hard for me to get a convo going, and i often miss messages so whisper it to me so i do see it!
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=dollygag)
-
-![Profile Views](https://komarev.com/ghpvc/?username=dollygag)
