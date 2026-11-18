@@ -19,4 +19,4 @@ main interests: transformers, wonderland.jar, crk, dandys world
 
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=dollygag)
 
-![Profile Views](https://komarev.com/dollygag)
+![Profile Views](https://komarev.com/ghpvc/?username=dollygag)
