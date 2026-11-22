@@ -1,4 +1,4 @@
- **hii, call me dolly!** ![image](https://64.media.tumblr.com/d04fceb59e3abb0f01eafddf57b0e36e/e03f0b44d5683015-be/s75x75_c1/fb76544071b2383c42672f25292b912c306cbecc.gifv)
+ **hii, call me dolly or delilah!** ![image](https://64.media.tumblr.com/d04fceb59e3abb0f01eafddf57b0e36e/e03f0b44d5683015-be/s75x75_c1/fb76544071b2383c42672f25292b912c306cbecc.gifv)
  > mainly a ponytown info page btw!
 
 ![image](https://64.media.tumblr.com/c5c2465e93c445a17a7e54f9cfffab13/96872098c3c5a16a-9c/s400x600/3727757289db4f3530b0bb299adb8e21d5a289c8.gifv)
