@@ -19,3 +19,5 @@ main interests: transformers, wonderland.jar, crk, dandys world
 𝗯𝘆𝗶! i'm rlly shy around strangers so it might be hard for me to get a convo going, and i often miss messages so whisper it to me so i do see it!
 
 ![experiments](https://komarev.com/ghpvc/?username=dollygag&color=ff69b4&style=plastic&label=EXPERIMENTS)
+
+![image](https://64.media.tumblr.com/8aabcfd744456e7bf1385466623bbdc9/223125506f84d9ab-d6/s100x200/14ad429fafc3b454e63969c0708b60e988fc4d5e.gifv) ![image](https://64.media.tumblr.com/1cdc8cd717d3456f7f72e660a141edde/bea578ccfee15413-02/s100x200/630bccc9944c5e6d7fe78812c8dfa7be3d48c5de.pnj) ![image](https://64.media.tumblr.com/9d2994a9c3a2d6cbdb14288aff72673a/c1a450bfe8687ea9-a7/s100x200/0666425e75975bd8195dbbb4a8b9a4919cb7fc97.pnj) ![image](https://64.media.tumblr.com/cc48125e658008761381e8e0862d5a9a/10d4e0a28929c960-06/s100x200/56fc5a9549db77fddcfac9056686f83974d9dddb.gifv)
