@@ -1,7 +1,7 @@
- **hii, call me dolly!** ![image](https://64.media.tumblr.com/308f38b6b5225c701c096fc43ba5ac86/d4a7d81e6df3a8aa-33/s75x75_c1/bd034c62bff126534920b9ca055294c5c6ec9f9f.gifv)
+ **hii, call me dolly!** ![image](https://64.media.tumblr.com/d04fceb59e3abb0f01eafddf57b0e36e/e03f0b44d5683015-be/s75x75_c1/fb76544071b2383c42672f25292b912c306cbecc.gifv)
  > mainly a ponytown info page btw!
 
-![image](https://64.media.tumblr.com/1242b202e3005827694749fa2945a0a1/0c2ec245ca7fd467-8a/s400x600/8cf62b9990d496b413364018e927843fb92890d1.gifv)
+![image](https://64.media.tumblr.com/a7758d1854ec51f13d110a97ff876d21/0d5045c63d5d2d4a-e9/s2048x3072/d2f4d43973d8bbd15a299a550d7ac52c447f6e4c.pnj)
 
 just an adhd hyperfemme loser who loves strawberries and pink!
 
@@ -11,7 +11,7 @@ main interests: transformers, wonderland.jar, crk, dandys world
 
 > c+h and int please!! ![image](https://64.media.tumblr.com/38dafbc8fa0b77ca40f4b3abac080d2e/543110503f68f349-05/s75x75_c1/9e2325dd89d6385214caf6f6294aed9d40f0281b.gifv)
 
-![image](https://64.media.tumblr.com/1242b202e3005827694749fa2945a0a1/0c2ec245ca7fd467-8a/s400x600/8cf62b9990d496b413364018e927843fb92890d1.gifv)
+![image](https://64.media.tumblr.com/a7758d1854ec51f13d110a97ff876d21/0d5045c63d5d2d4a-e9/s2048x3072/d2f4d43973d8bbd15a299a550d7ac52c447f6e4c.pnj)
 
 𝗱𝗻𝗶! under 15 unless friend, proshippers, darkshippers, bigots, toxic people, illness fakers, basic dni criteria :P
 
